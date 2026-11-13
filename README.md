@@ -6,18 +6,26 @@ Pietra» di Vincenzo Bumbalo
 CUORE DI PIETRA
 
 Sono soli in una stanza,
+
 con le pareti di vetro,
+
 tentano di assomigliare agli altri.
+
 Chiesi il loro nome,
+
 restarono lì muti ed immobili a guardarmi.
+
 Chi è che divora il loro cuore di pietra? 
+
 — Vincenzo Bumbalo (scritta al risveglio dopo il primo periodo di psicoanalisi, il «periodo
 bolognese») 
+
 Questa poesia breve e fulminante, nata subito dopo un passaggio analitico cruciale (il
 «periodo bolognese»), racchiude un'architettura simbolica di straordinaria densità. Il testo
 non si limita a raccontare un sogno, ma cristallizza l'istante esatto in cui l'inconscio mette in
 scena le proprie difese primarie di fronte al processo di trasformazione. Di seguito un'analisi
 articolata secondo quattro prospettive disciplinari. 
+
 1. Analisi Psicologica: L'Alienazione e il Falso Sé
 Dal punto di vista della psicologia dinamica e relazionale, il testo mette in scena il dramma
 del Falso Sé (concetto cardine elaborato da Donald Winnicott). 
