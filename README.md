@@ -79,6 +79,7 @@ richiama la riflessione di Jean-Paul Sartre: lo sguardo dell'Altro che pietrific
 trasforma il soggetto in oggetto. Qui avviene un cortocircuito: sono le figure stesse a essere
 già pietrificate, eppure il loro sguardo muto interroga il poeta, costringendolo a farsi carico
 del loro enigma. 
+
 •La nominazione come esistenza: Chiedere il nome significa tentare di strappare queste
 presenze all'anonimato dell'Esserci (Dasein) inautentico (il «Si» impersonale di Heidegger).
 Il loro silenzio sancisce l'impossibilità di accedere a un'esistenza piena finché non viene
