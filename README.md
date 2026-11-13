@@ -1,7 +1,10 @@
 Ricordi ed introspezione psicologica
+
 Analisi psicologica, psicoanalitica, fenomenologica e antropologica della poesia «Cuore di
 Pietra» di Vincenzo Bumbalo 
+
 CUORE DI PIETRA
+
 Sono soli in una stanza,
 con le pareti di vetro,
 tentano di assomigliare agli altri.
