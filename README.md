@@ -27,6 +27,7 @@ scena le proprie difese primarie di fronte al processo di trasformazione. Di seg
 articolata secondo quattro prospettive disciplinari. 
 
 1. Analisi Psicologica: L'Alienazione e il Falso Sé
+
 Dal punto di vista della psicologia dinamica e relazionale, il testo mette in scena il dramma
 del Falso Sé (concetto cardine elaborato da Donald Winnicott). 
  
